@@ -8,4 +8,4 @@ meu nome é yury
 
 - Ultilizo esse espaça para minha organização e compartilhamanto dos meus projatos desenvoulvidos
 
-![image](https://github.com/user-attachments/assets/481b65ba-c6ff-48b4-bb1f-12da667d3a93)
+![image](https://github.com/user-attachments/assets/ba37d365-ace3-475f-972f-339b7ef963d2)
